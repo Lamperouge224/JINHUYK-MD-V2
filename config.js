@@ -9,7 +9,7 @@
      𝐒𝐒𝐏 𝐂𝐎𝐌𝐏𝐀𝐆𝐍𝐈𝐄
      
     ⭐ ＯＵＲ ＷＥＢＳＩＴＥ
-     https://github.com/lamperouge224/JINHUYK-MD-V2
+     https://github.com/KangJinhuyk/JINHUYK-MD-V2
 
 © ＴＲＹ ＤＥＣＲＹＰＴＩＮＧ ＩＦ ＹＯＵ ＣＡＮ⚠
 
